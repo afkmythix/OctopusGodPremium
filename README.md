@@ -2,7 +2,7 @@
 Leaked premium Crab Game cheat
 
 
-Youtube Video On how to set up: https://youtu.be/f7X-jIq2MHo
+Youtube Video On how to set up: https://www.youtube.com/watch?v=XjLR0M7ruRs
 
 
 
